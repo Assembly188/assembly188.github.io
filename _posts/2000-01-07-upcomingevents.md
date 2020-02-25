@@ -1,6 +1,6 @@
 ---
 title: "Public Events"
-bg: white
+bg: lightblue
 color: Black
 fa-icon: calendar
 style: center
