@@ -8,7 +8,7 @@ style: center
 ---
 
 
-### Click here to view newsletters -- [Newsletter Archive](https://drive.google.com/drive/folders/1_pHxRQioTGzJLuu3IBgz1vceqbMxYWoV?usp=sharing)<br><br>
+### Click here to view our past newsletters -- [Newsletter Archive](https://drive.google.com/drive/folders/1_pHxRQioTGzJLuu3IBgz1vceqbMxYWoV?usp=sharing)<br><br>
 
 
 
