@@ -7,6 +7,22 @@ style: center
 
 ---
 
+<img src="img/utahhoflogo.jpg" width="100%" height="100%"/><br>
+##Utah Magic Hall of Fame
+###We are happy to announce this year's Utah Magic Hall of Fame on April 16, 2020
+###at Molly's Cafe, 753 Columbia Lane, Provo, UT at 7:00pm
+###We will be hosting a dinner and show starring DAVID CHARVET!
+###Also starring Utah's own Paul Draper, Kerry Summers, and Performer to be announced.<br>
+
+Dinner and Show is $39 per ticket.  Advanced reservations have been sent to SAM and IBM members
+and will be opened to remaining magicians in early March.  Please email Dave Goodsell (superg13@comcast.net)
+or Scott Chamberlain (scottchamberlainmagic@gmail.com) for more information or if you are interested
+in joining us that night.
+
+
+
+
+
 <!--# <b>October 14, 2019<b/>
 <img src="img/cornbellys_1.png" width="75%" height="75%"/><br>
 ## Cornbellys at Thanksgiving Point will have me out again on October 14th for 2 shows for their Magic Monday Night.  The first show will be at 5:30 followed by a second show at 6:45.  Come out and enjoy the fun!-->
