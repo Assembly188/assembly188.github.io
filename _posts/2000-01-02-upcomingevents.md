@@ -6,6 +6,10 @@ fa-icon: calendar
 style: center
 
 ---
+##March 19, 2020
+###Club meeting is at the Jamestown Retirement Center at 7:00pm
+###Theme for March meeting is Money (or lucky) magic<br><br>
+
 
 <img src="img/utahhoflogo.jpg" width="100%" height="100%"/><br>
 
