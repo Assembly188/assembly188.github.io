@@ -12,6 +12,9 @@ style: center
 ### Club meeting is at the Jamestown Retirement Center at 7:00pm
 ### Theme for March meeting is Money (or lucky) magic<br><br><br>
 
+---
+
+## April 16, 2020
 <img src="img/utahhoflogo.jpg" width="100%" height="100%"/><br>
 
 ## Utah Magic Hall of Fame
