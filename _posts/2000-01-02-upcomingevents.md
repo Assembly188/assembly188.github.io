@@ -9,8 +9,8 @@ style: center
 
 
 ## March 19, 2020
-### Club meeting is at the Jamestown Retirement Center at 7:00pm
-### Theme for March meeting is Money (or lucky) magic<br><br><br>
+### CLUB MEETING IS CANCELLED THIS MONTH DUE TO CORONA VIRUS!
+
 
 ---
 
