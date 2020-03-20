@@ -14,7 +14,7 @@ style: center
 
 ---
 
-## April 16, 2020 (CANCELLED, Stay tuned for further updates on a new Date for this event)
+## A̶p̶r̶i̶l̶ ̶1̶6̶,̶ ̶2̶0̶2̶0̶ (CANCELLED! Stay tuned for further updates on a new Date for this event)
 <img src="img/utahhoflogo.jpg" width="100%" height="100%"/><br>
 
 ## Utah Magic Hall of Fame
@@ -27,6 +27,7 @@ Dinner and Show is $39 per ticket.  Advanced reservations have been sent to SAM 
 and will be opened to remaining magicians in early March.  Please email Dave Goodsell (superg13@comcast.net)
 or Scott Chamberlain (scottchamberlainmagic@gmail.com) for more information or if you are interested
 in joining us that night.
+
 
 
 
