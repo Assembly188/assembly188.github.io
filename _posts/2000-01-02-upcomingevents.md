@@ -14,7 +14,7 @@ style: center
 
 ---
 
-## April 16, 2020
+## April 16, 2020 (CANCELLED, Stay tuned for further updates on a new Date for this event)
 <img src="img/utahhoflogo.jpg" width="100%" height="100%"/><br>
 
 ## Utah Magic Hall of Fame
