@@ -7,8 +7,16 @@ style: center
 
 ---
 
+## May 21, 2020 @ 7:00pm
 
-## March 19, 2020
+### CLUB MEETING IS ON!
+## Theme is "What I learned the last few months"<br><br><br>
+
+##  Now that Utah has moved to Code Yellow, we will be planning our club meeting this week IN PERSON! This meeting will be OUTSIDE and we plan to maintain safe social distancing guidelines set by the state.
+
+## We will be meeting at the home of John Hilton III in his backyard at 7:00 pm at 132 N 1200 E Orem. We still want to maintain a safe environment and I would encourage anyone that feels high-risk or just does not feel comfortable yet with larger groups to consider skipping this event if necessary.
+
+<!--## March 19, 2020
 ### CLUB MEETING IS CANCELLED THIS MONTH DUE TO CORONA VIRUS!
 
 
@@ -28,6 +36,7 @@ and will be opened to remaining magicians in early March.  Please email Dave Goo
 or Scott Chamberlain (scottchamberlainmagic@gmail.com) for more information or if you are interested
 in joining us that night.
 
+-->
 
 
 
