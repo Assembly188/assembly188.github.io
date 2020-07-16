@@ -7,10 +7,10 @@ style: center
 
 ---
 
-## June 18, 2020 @ 7:00pm
+## July 16, 2020 @ 7:00pm
 
 ### CLUB MEETING IS ON!
-## Theme is "Summer Outdoor Magic"<br><br><br>
+## Theme is "Whatever you want to show off"<br><br><br>
 
 ## We will be meeting at the home of John Hilton III in his backyard at 7:00 pm at 132 N 1200 E Orem. We still want to maintain a safe environment and I would encourage anyone that feels high-risk or just does not feel comfortable yet with larger groups to consider skipping this event if necessary.
 
