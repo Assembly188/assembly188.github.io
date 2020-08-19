@@ -7,10 +7,10 @@ style: center
 
 ---
 
-## July 16, 2020 @ 7:00pm
+## August 20, 2020 @ 7:00pm
 
 ### CLUB MEETING IS ON!
-## Theme is "Whatever you want to show off"<br><br><br>
+## Theme is "Back to School"<br><br><br>
 
 ## We will be meeting at the home of John Hilton III in his backyard at 7:00 pm at 132 N 1200 E Orem. We still want to maintain a safe environment and I would encourage anyone that feels high-risk or just does not feel comfortable yet with larger groups to consider skipping this event if necessary.
 
