@@ -7,12 +7,12 @@ style: center
 
 ---
 
-## August 20, 2020 @ 7:00pm
+## November 19, 2020 @ 7:00pm
 
 ### CLUB MEETING IS ON!
-## Theme is "Back to School"<br><br><br>
+## No Theme.  Just join :) <br><br><br>
 
-## We will be meeting at the home of John Hilton III in his backyard at 7:00 pm at 132 N 1200 E Orem. We still want to maintain a safe environment and I would encourage anyone that feels high-risk or just does not feel comfortable yet with larger groups to consider skipping this event if necessary.
+## We will be meeting online for this occurence.  If you are not on the email distribution for club meeting and would like to be, please send an email to Scott Chamberlain @ scottchamberlainmagic@gmail.com with a request to have your name added to the list.
 
 <!--## March 19, 2020
 ### CLUB MEETING IS CANCELLED THIS MONTH DUE TO CORONA VIRUS!
