@@ -7,10 +7,10 @@ style: center
 
 ---
 
-## November 19, 2020 @ 7:00pm
+## December 17, 2020 @ 7:00pm
 
 ### CLUB MEETING IS ON!
-## No Theme.  Just join :) <br><br><br>
+## Holiday Magic is the Theme :) <br><br><br>
 
 ## We will be meeting online for this occurence.  If you are not on the email distribution for club meeting and would like to be, please send an email to Scott Chamberlain at  scottchamberlainmagic@gmail.com with a request to have your name added to the list.
 
